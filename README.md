@@ -1,2 +1,0 @@
-# brotodoimalaia
-Sobre o brotodoimalaia
